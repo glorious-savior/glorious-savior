@@ -16,7 +16,7 @@ public class glorious_savior {
 ## 👀 Visit me on
 - Instagram : @glorious.savior
 - Facebook : Glorious Savior (fb.me/glorious.savior.176)
-- Twitter : @glorious.savior
+- Twitter : @glorious-savior
 ## 💞 Colleague
 ### Latif Harkat (Marga-176)™
 - Instagram : @latif176_
