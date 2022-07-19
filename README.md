@@ -17,7 +17,7 @@ public class glorious_savior {
 - Instagram : @glorious.savior
 - Facebook : Glorious Savior (fb.me/glorious.savior.176)
 - Twitter : @glorious-savior
-## 💞 Colleague
+## 💞 Colleague (Fatner)
 ### Latif Harkat (Marga-176)™
 - Instagram : @latif176_
 - Facebook : ラティフ (facebook.com/latif.harkat.176)
